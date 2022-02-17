@@ -1,1 +1,2 @@
 # README #
+HALLO! ICH BIN LINDA. 
